@@ -1,1 +1,1 @@
-Bienvenidos al CLub de Ciberseguridad
+Bienvenidos al Club de Ciberseguridad
